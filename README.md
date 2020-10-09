@@ -1,1 +1,1 @@
-# khasanov.github.io
+# khasanov.my.id
