@@ -1,4 +1,4 @@
-# https://khasanov.my.id
+# https://khasanov.000.pe
 
 This is my personal site (old version) 
 
